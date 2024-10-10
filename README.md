@@ -1,1 +1,1 @@
-my project is curently ocupied by my hangover
+my project is curently occupied by my hangover
